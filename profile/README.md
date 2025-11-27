@@ -1,7 +1,7 @@
 # Enfete
 
 Enfete.com is a woman-owned small business in Manassas, VA that specializes in party supplies and
-making gathering special.
+making gatherings special.
 
 [enfete.com](https://enfete.com)
 [Instagram](https://instagram.com/enfeteparty)
